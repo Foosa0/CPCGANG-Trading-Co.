@@ -11,3 +11,5 @@ Hyderabad, Telangana, India.
 2) All pictures shown are for illustration purpose only. Delivered product may vary.
 3) In case the delivered product varies, CPCGANG does NOT take full responsibility. 
 4) We try our best to negotiate with the seller to ensure a smooth partial or full refund. 
+
+By proceeding further you have acknowledge that you have read and agreed to the above Terms and Conditions.
