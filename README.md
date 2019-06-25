@@ -15,7 +15,7 @@ Hyderabad, Telangana, India.
 * **By proceeding further you have acknowledged that you have read and agreed to the above Terms and Conditions.**
 
 ## COMMISSION
-Honestly, I have to pay the Annual Maintenance Charges(AMC) for my card which is ₹175 right now. Therefore, I'll remove the commission once I make ₹175. Thanks for understanding.
+Honestly, I have to pay the Annual Maintenance Charges(AMC) for my card which is ₹175 right now. Therefore, I'll remove the commission once I make ₹175. 
 
 * Range: ₹1000 and Above - ₹20
 * Range: ₹500 and Above - ₹10
